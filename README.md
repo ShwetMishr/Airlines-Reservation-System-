@@ -12,7 +12,7 @@ It helps Students In their Exams To get Good Score If they Made Project Using Ja
 ![Confirm_Ticket](https://github.com/user-attachments/assets/0ffa9622-fa5d-4af8-bebe-d5c5411b2644)
 
 
-![Screenshot 2024-10-28 211729](https://github.com/user-attachments/assets/5651969e-b50b-44fd-80b3-8a491268a6a
+![Screenshot 2024-10-28 211729](https://github.com/user-attachments/assets/5651969e-b50b-44fd-80b3-8a491268a6a)
 
 ![serach_flight](https://github.com/user-attachments/assets/0f49b593-d14f-46c0-9c31-78365d7d4acd)
 3)
